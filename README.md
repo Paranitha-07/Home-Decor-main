@@ -29,4 +29,4 @@ Contributions to improve Home Decor are welcome! Please fork the repository, mak
 
 
 Contact
-If you have any questions or suggestions, please contact me at tjeevathuvarakan@gmail.com.
+If you have any questions or suggestions, please contact me at paranitha2000@gmail.com
